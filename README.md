@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **aman_cseai@outlook.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFKlrVyIs0/9TsPipSa5rrInDRS9CQ6zA/edit?utm_content=DAFKlrVyIs0&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFKlrVyIs0/9TsPipSa5rrInDRS9CQ6zA/edit?utm_content=DAFKlrVyIs0&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1yClUGtZsbCyatcQ0pITH3k_lwwe6GsKu/view?usp=sharing.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
