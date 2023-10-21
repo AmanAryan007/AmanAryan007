@@ -11,7 +11,6 @@
 
 - 📫 How to reach me **aman_cseai@outlook.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1yClUGtZsbCyatcQ0pITH3k_lwwe6GsKu/view?usp=sharing.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
